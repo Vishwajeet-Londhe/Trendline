@@ -2,4 +2,4 @@
 
 I have made a project by observing below image
 
-![image](https://github.com/Vishwajeet-Londhe/Trendline/assets/126247101/8e8c50e5-3b67-4a0e-8106-7e73d687540f)
+![image](https://github.com/user-attachments/assets/04671d49-f9ea-4de3-bf05-a5c2989d4dfb)
